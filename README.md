@@ -1,5 +1,7 @@
 Diem25 http://diem25.org/manifesto-short-version/ vertimas į lietuvių kalbą
 
+> Informacija vertėjams: *kursyvu* pažymėti tektai yra išversti, o **paryškinti** yra vertimai
+
 *For all their concerns with global competitiveness, migration and terrorism, only one prospect truly terrifies the Powers of Europe: Democracy!*
 
 **Nors jie ir dreba dėl konkurencijos pasaulyje, migracijos ir terorizmo, tačiau didžiausia Europos galingųjų baimė yra Demokratija!**
