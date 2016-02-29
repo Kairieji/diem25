@@ -10,7 +10,9 @@ Diem25 http://diem25.org/manifesto-short-version/ vertimas į lietuvių kalbą
 
 The European Union could have been the proverbial Beacon on the Hill, showing the world how peace and solidarity may be snatched from the jaws of centuries-long conflict and bigotry. Alas, today, a common bureaucracy and a common currency divide European peoples that were beginning to unite despite our different languages and cultures.
 
-Now, today, Europeans are feeling let down by EU institutions everywhere.From Helsinki to Lisbon, from Dublin to Crete, from Leipzig to Aberdeen. A stark choice is approaching fast. The choice between authentic democracy and insidious disintegration.
+*Now, today, Europeans are feeling let down by EU institutions everywhere.From Helsinki to Lisbon, from Dublin to Crete, from Leipzig to Aberdeen. A stark choice is approaching fast. The choice between authentic democracy and insidious disintegration.*
+
+**Šiandien europiečiai jaučiasi nuvilti ES institucijų - nuo Helsinkio iki Lisabonos, nuo Dublino iki Kretos, nuo Leipcigo iki Aberdyno. Tiesmukas pasirinkimas ateina greičiausiai. Pasirinkimas tarp tikros demokratijos ir klastingo suskaldymo.**
 
 At the heart of our disintegrating EU there lies a guilty deceit: A highly political, top-down, opaque decision-making process is presented as ‘apolitical’, ‘technical’, ‘procedural’ and ‘neutral’. Its purpose is to prevent Europeans from exercising democratic control over their money, communities, working conditions and environment.
 
