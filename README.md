@@ -4,23 +4,32 @@ Diem25 http://diem25.org/manifesto-short-version/ vertimas į lietuvių kalbą
 
 *For all their concerns with global competitiveness, migration and terrorism, only one prospect truly terrifies the Powers of Europe: Democracy!*
 
-**Nors jie ir dreba dėl konkurencijos pasaulyje, migracijos ir terorizmo, tačiau didžiausia Europos galingųjų baimė yra Demokratija!**
+**Kad ir kaip jie besibaimintų dėl didėjančio konkurencijos pasaulio rinkose, migracijos ir terorizmo, didžiausia Europos galingųjų baimė yra Demokratija!**
 
 *They speak in democracy’s name but only to deny, exorcise and suppress it in practice. They seek to co-opt, evade, corrupt, mystify, usurp and manipulate democracy in order to break its energy and arrest its possibilities. For rule by Europe’s peoples, government by the demos, is their nightmare.*
 
-**Jie kalba demokratijos vardu, bet tik tam, kad ją paneigti, išvaryti ir užgniaužti ją praktikoje. Jie galimybių pasinaudoti, išvaryti, iškraipyti, mistifkuoti, uzurpuoti ir manipuliuoti demokratija tam, kad galėtų atimti iš jos energiją ir galimybes. Europos žmonių galia ir savivalda yra jų košmaras.**
+**Jie kalba demokratijos vardu, bet tik tam, kad ją paneigti, išvaryti ir užgniaužtų jos veikimą. Jie siekia pasinaudoti, išvaryti, iškraipyti, mistifkuoti, uzurpuoti ir manipuliuoti demokratija tam, kad galėtų užtvenkti jos energiją ir užgniaužti jos galimybes. Jų košmaras būtų Europos žmonių, demoso valdžia.**
 
-The European Union could have been the proverbial Beacon on the Hill, showing the world how peace and solidarity may be snatched from the jaws of centuries-long conflict and bigotry. Alas, today, a common bureaucracy and a common currency divide European peoples that were beginning to unite despite our different languages and cultures.
+*The European Union could have been the proverbial Beacon on the Hill, showing the world how peace and solidarity may be snatched from the jaws of centuries-long conflict and bigotry. Alas, today, a common bureaucracy and a common currency divide European peoples that were beginning to unite despite our different languages and cultures.*
+
+**Europos Sąjunga galėjo tapti, tuo Švyturiu ant kalvos, rodančiu visam pasauliui, kaip taika ir solidarumas gali būti išplėšti iš šimtmečius trunkančių konfliktų ir neapykantos nasrų. Tačiau, šiandiena, viso labo bendra biurokratija su bendra valiuta skiria Europos žmones, kurie buvo pradėję vienystis nepaisydami savo skirtingų kalbų ir kultūrų**
 
 *Now, today, Europeans are feeling let down by EU institutions everywhere.From Helsinki to Lisbon, from Dublin to Crete, from Leipzig to Aberdeen. A stark choice is approaching fast. The choice between authentic democracy and insidious disintegration.*
 
-**Šiandien europiečiai jaučiasi nuvilti ES institucijų - nuo Helsinkio iki Lisabonos, nuo Dublino iki Kretos, nuo Leipcigo iki Aberdyno. Tiesmukas pasirinkimas ateina greičiausiai. Pasirinkimas tarp tikros demokratijos ir klastingo suskaldymo.**
+**Šiandien europiečiai viso Europoje jaučiasi nuvilti ES institucijų - nuo Helsinkio iki Lisabonos, nuo Dublino iki Kretos, nuo Leipcigo iki Aberdyno. Mums visiems teks lemtingas sprendimas, kurio metu turėsime rinktis tarp autentiškos demokratijos ir gręsiančio suskaldymo.**
 
-At the heart of our disintegrating EU there lies a guilty deceit: A highly political, top-down, opaque decision-making process is presented as ‘apolitical’, ‘technical’, ‘procedural’ and ‘neutral’. Its purpose is to prevent Europeans from exercising democratic control over their money, communities, working conditions and environment.
+*At the heart of our disintegrating EU there lies a guilty deceit: A highly political, top-down, opaque decision-making process is presented as ‘apolitical’, ‘technical’, ‘procedural’ and ‘neutral’. Its purpose is to prevent Europeans from exercising democratic control over their money, communities, working conditions and environment.*
 
-The price of this deceit is not merely the end of democracy but also the dream of shared prosperity:
+**Mūsų besiskaldančios EUropos šerdyje slypi apgaulė: labai politizuotas, hierarchizuotas ir neskaidrus procesas yra pristatomas esantis "apolitiškas", "techninis", "procedūrinis" ir "neutralus". Jo tikslas yra užkirsti kelią Europiečiams naudotis savo teise į demokratinę pinigų, benduromenių, darbo sąlygų ir gamtosaugos kontrolę**
 
-The Eurozone economies are being marched off the cliff of competitive austerity, resulting in permanent recession in the weaker countries and low investment in the core countries
+*The price of this deceit is not merely the end of democracy but also the dream of shared prosperity:*
+
+**Šios apgaulės kaina nėra vien demokratijos pabaiga, bet taip ir bendro klestėjimo svajonės žlugimas:**
+
+*The Eurozone economies are being marched off the cliff of competitive austerity, resulting in permanent recession in the weaker countries and low investment in the core countries*
+
+
+
 EU member-states outside the Eurozone are alienated, seeking inspiration and partners in suspect quarters
 Unprecedented inequality, declining hope and misanthropy flourish throughout Europe
 The more they asphyxiate democracy, the less legitimate their political authority becomes, the stronger the forces of economic recession, and the greater their need for further authoritarianism. Thus democracy’s enemies gather renewed power while losing legitimacy and confining hope and prosperity to the very few (who may only enjoy it behind the gates and the fences needed to shield them from the rest of society).
