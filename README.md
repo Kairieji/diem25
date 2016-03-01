@@ -40,17 +40,32 @@ Diem25 http://diem25.org/manifesto-short-version/ vertimas į lietuvių kalbą
 
 *The more they asphyxiate democracy, the less legitimate their political authority becomes, the stronger the forces of economic recession, and the greater their need for further authoritarianism. Thus democracy’s enemies gather renewed power while losing legitimacy and confining hope and prosperity to the very few (who may only enjoy it behind the gates and the fences needed to shield them from the rest of society).*
 
-**Kuo labiau jie siekia dusinti demokratiją, tuo mažiau legitimi tampa jų valdžia, tuo labiau sustiprėja ekonominės recesijos jėgos, ir tuo labiau jiems reikia daugiau autoritarizmo.  Šitaip demokratijos priešai kaupia jėgas prarasdami leigitimumą ir palikdami viltį ir klestėjimą tam nedaugeliui išrinktųjų (kurie tegali savo pozicija džiaugtis už vartų ir tvorų reikalingų juos ginti nuo likusios visuomenės)**
+**Kuo labiau jie siekia dusinti demokratiją, tuo mažiau legitimi tampa jų valdžia, tuo labiau sustiprėja ekonominės recesijos jėgos, ir tuo labiau jiems reikia dar daugiau autoritarizmo.  Šitaip demokratijos priešai kaupia jėgas prarasdami leigitimumą ir palikdami viltį ir klestėjimą tam nedaugeliui išrinktųjų (kurie tegali savo pozicija džiaugtis už vartų ir tvorų reikalingų juos ginti nuo likusios visuomenės)**
 
-This is the unseen process by which Europe’s crisis is turning our peoples inwards, against each other, amplifying pre-existing jingoism, xenophobia.The privatisation of anxiety, the fear of the ‘other’, the nationalisation of ambition, and the re-nationalisation of policy threaten a toxic disintegration of common interests from which Europe can only suffer.
+*This is the unseen process by which Europe’s crisis is turning our peoples inwards, against each other, amplifying pre-existing jingoism, xenophobia.The privatisation of anxiety, the fear of the ‘other’, the nationalisation of ambition, and the re-nationalisation of policy threaten a toxic disintegration of common interests from which Europe can only suffer.*
 
-Europe’s pitiful reaction to its banking and debt crises, to the refugee crisis, to the need for a coherent foreign, migration and anti-terrorism policy, are all examples of what happens when solidarity loses its meaning.
+** Taip atrodo tas retai į dienos šviesą ištraukiamas procesas, kurio metu Europos krizė izoliuoj jos žmones, supriešina juos tarpusavyje, susitiprina išankstinius nusistatymus, džingoizmą, ksenofobiją. Nerimo privatizacija, "kito" baime, ambicijos nacionalizacija, grasina toksiška bendrų interesų dezintegracija, dėl ko Europa tegali tik nukentėti**
 
-Two dreadful options dominate:
+*Europe’s pitiful reaction to its banking and debt crises, to the refugee crisis, to the need for a coherent foreign, migration and anti-terrorism policy, are all examples of what happens when solidarity loses its meaning.*
 
-Retreat into the cocoon of our nation-states
-Or surrender to the Brussels democracy-free zone
-There must be another course. And there is!
+**Apgailėtina Europos reakcija į bankininkystės ir skolų krizes, į pabėgėlių krizę, į poreikį turėtį nuoseklią, užsienio, migracijos ir kovos su tertozmu politika yra pavyzdžiai, kurie parodo, kad nutinka kai solidarumas praranda savo prasmę**
+
+
+*Two dreadful options dominate:*
+
+**Viešoje diskusijoje dominuoja du pasirinkimai**
+
+*Retreat into the cocoon of our nation-states*
+
+**Pasitraukti į savų nacionalinių valstybių kokonus**
+
+*Or surrender to the Brussels democracy-free zone*
+
+**Arba pasiduoti Briuselio dominuojamai erdvei be demokratijos**
+
+*There must be another course. And there is!*
+
+**Privalo būti kitas kelias. Ir jis egzistuoja**
 
 It is the one official ‘Europe’ resists with every sinew of its authoritarian mind-set:
 
