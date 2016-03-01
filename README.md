@@ -68,22 +68,41 @@ We call on our fellow Europeans to join us forthwith to create DiEM25 and to fig
 We are inspired by a Europe of Reason, Liberty, Tolerance and Imagination made possible by comprehensive Transparency, real Solidarity and authentic Democracy. We aspire to:
 
 A Democratic Europe in which all political authority stems from Europe’s sovereign peoples
+
 A Transparent Europe where all decision-making takes place under the citizens’ scrutiny
+
 A United Europe whose citizens have as much in common across countries as within them
+
 A Realistic Europe that sets itself the task of radical, yet achievable, democratic reforms
+
 A Decentralised Europe that uses central power to maximise democracy locally
+
 A Pluralist Europe of regions, ethnicities, faiths, nations, languages and cultures
+
 An Egalitarian Europe that celebrates difference and ends all forms of discrimination
+
 A Cultured Europe that harnesses its peoples’ cultural diversity
+
 A Social Europe that recognises freedom from exploitation as a prerequisite for true liberty
+
 A Productive Europe that directs investment into a shared, green prosperity
+
 A Sustainable Europe that lives within the planet’s means
+
 An Ecological Europe engaged in genuine world-wide green transition
+
 A Creative Europe that releases the innovative powers of its citizens’ imagination
+
 A Technological Europe pressing new technologies in the service of solidarity
+
 A Historically-minded Europe that seeks a bright future without hiding from its past
+
 An Internationalist Europe that treats non-Europeans as ends-in-themselves
+
 A Peaceful Europe de-escalating tensions in its neighbourhood and beyond
+
 An Open Europe that is alive to ideas, people and inspiration from all over the world, recognising fences and borders as signs of weakness and sources of insecurity
+
 A Liberated Europe where privilege, prejudice, deprivation and the threat of violence wither, allowing Europeans to be born into fewer stereotypical roles, to enjoy even chances to develop their potential, and to be free to choose more of their partners in life, work and society.
+
 Carpe DiEM25
