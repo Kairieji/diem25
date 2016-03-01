@@ -36,7 +36,7 @@ Diem25 http://diem25.org/manifesto-short-version/ vertimas į lietuvių kalbą
 
 *Unprecedented inequality, declining hope and misanthropy flourish throughout Europe*
 
-**Iki šiol neregėta nelygybė, blėstančuis viltys ir mizantropija klęsti Europoje*
+**Iki šiol neregėta nelygybė, blėstančios viltys ir mizantropija klęsti Europoje**
 
 *The more they asphyxiate democracy, the less legitimate their political authority becomes, the stronger the forces of economic recession, and the greater their need for further authoritarianism. Thus democracy’s enemies gather renewed power while losing legitimacy and confining hope and prosperity to the very few (who may only enjoy it behind the gates and the fences needed to shield them from the rest of society).*
 
@@ -53,7 +53,7 @@ Diem25 http://diem25.org/manifesto-short-version/ vertimas į lietuvių kalbą
 
 *Two dreadful options dominate:*
 
-**Viešoje diskusijoje dominuoja du pasirinkimai**
+**Viešoje diskusijoje dominuoja du siūlomi pasirinkimai**
 
 *Retreat into the cocoon of our nation-states*
 
@@ -65,7 +65,7 @@ Diem25 http://diem25.org/manifesto-short-version/ vertimas į lietuvių kalbą
 
 *There must be another course. And there is!*
 
-**Privalo būti kitas kelias. Ir jis egzistuoja**
+**Privalo būti kitas kelias. Ir jis yra!**
 
 It is the one official ‘Europe’ resists with every sinew of its authoritarian mind-set:
 
@@ -73,14 +73,25 @@ A surge of democracy!
 
 Edmund Burke’s line applies to today’s Europe perfectly: “The only thing necessary for the triumph of evil is that good people do nothing.” Committed democrats must resolve to act across Europe. With a view to call forth just such a surge, we are gathering on 9th February in Berlin to found a movement,DiEM25.
 
-We come from every part of Europe and are united by different cultures, languages, accents, political party affiliations, ideologies, skin colours, gender identities, faiths and conceptions of the good society.
+*We come from every part of Europe and are united by different cultures, languages, accents, political party affiliations, ideologies, skin colours, gender identities, faiths and conceptions of the good society.*
 
-We come together as committed Europeans determined to prevent a clueless EU establishment, which is deeply contemptuous of democracy, from rendering impossible an authentically democratic European union.
+**Mes kilę iš visų Europos kamperlių ir esame jungiami skirtingų kultūrų, kalbų, afiliacijų su skirtingomis politinėmis partijomis, ideologijų, odos spalvų, identitetų, tikėjimų, ir trokštamos visuomenės sampratų**
 
-One simple, radical idea is the motivating force behind DiEM25:
+*We come together as committed Europeans determined to prevent a clueless EU establishment, which is deeply contemptuous of democracy, from rendering impossible an authentically democratic European union.*
 
-Democratise Europe!
-The EU will either be democratised or it will disintegrate!
+**Mes ateiname kartu, kaip įsitikinę Europiečiai, ryžtingai rengiamės užkirsti kelią situacijoje nebesigaudančiam ES establišmentui, kuris giliai ir iš principo su panieka žiūri į demokratiją, paversti autentišką demokratinę Europos Sąjungą neįmanoma**
+
+*One simple, radical idea is the motivating force behind DiEM25:*
+
+**Diem25 motyvuoja viena paprasta, radikali idėja"*
+
+*Democratise Europe!*
+
+**Demokratizuokime Europą!**
+
+*The EU will either be democratised or it will disintegrate!*
+
+**ES bus arba demokratizuota arba dezintegruosis**
 
 Our immediate priority is (A) full transparency in decision-making (e.g. live-streaming of European Council, Ecofin and Eurogroup meetings, full disclosure of trade negotiation documents, publication of ECB minutes etc.) and (B) the urgent redeployment of existing EU institutions in the pursuit of innovative policies that genuinely address the crises of debt, banking, inadequate investment, rising poverty and migration.
 
