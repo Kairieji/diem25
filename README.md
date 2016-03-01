@@ -28,6 +28,8 @@ Diem25 http://diem25.org/manifesto-short-version/ vertimas į lietuvių kalbą
 
 *The Eurozone economies are being marched off the cliff of competitive austerity, resulting in permanent recession in the weaker countries and low investment in the core countries*
 
+**Eurozonos ekonomikos yra varomos vis griežtėjančios taupymo politikos vaga, dėl ko silpnesnėse Europos ekonomikose prasidėjo nuolatinė recesija, kai Euorozonos centro valstybės kenčia nuo žemo investicijų lygmens**
+
 
 
 EU member-states outside the Eurozone are alienated, seeking inspiration and partners in suspect quarters
