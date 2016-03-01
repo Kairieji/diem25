@@ -30,11 +30,17 @@ Diem25 http://diem25.org/manifesto-short-version/ vertimas į lietuvių kalbą
 
 **Eurozonos ekonomikos yra varomos vis griežtėjančios taupymo politikos vaga, dėl ko silpnesnėse Europos ekonomikose prasidėjo nuolatinė recesija, kai Euorozonos centro valstybės kenčia nuo žemo investicijų lygmens**
 
+*EU member-states outside the Eurozone are alienated, seeking inspiration and partners in suspect quarters*
 
+**ES valstybės ne iš Eurozonos jaučiasi atstumtos, bei ieško įkvėpimo bei partnerių abejotinose draugijose**
 
-EU member-states outside the Eurozone are alienated, seeking inspiration and partners in suspect quarters
-Unprecedented inequality, declining hope and misanthropy flourish throughout Europe
-The more they asphyxiate democracy, the less legitimate their political authority becomes, the stronger the forces of economic recession, and the greater their need for further authoritarianism. Thus democracy’s enemies gather renewed power while losing legitimacy and confining hope and prosperity to the very few (who may only enjoy it behind the gates and the fences needed to shield them from the rest of society).
+*Unprecedented inequality, declining hope and misanthropy flourish throughout Europe*
+
+**Iki šiol neregėta nelygybė, blėstančuis viltys ir mizantropija klęsti Europoje*
+
+*The more they asphyxiate democracy, the less legitimate their political authority becomes, the stronger the forces of economic recession, and the greater their need for further authoritarianism. Thus democracy’s enemies gather renewed power while losing legitimacy and confining hope and prosperity to the very few (who may only enjoy it behind the gates and the fences needed to shield them from the rest of society).*
+
+**Kuo labiau jie siekia dusinti demokratiją, tuo mažiau legitimi tampa jų valdžia, tuo labiau sustiprėja ekonominės recesijos jėgos, ir tuo labiau jiems reikia daugiau autoritarizmo.  Šitaip demokratijos priešai kaupia jėgas prarasdami leigitimumą ir palikdami viltį ir klestėjimą tam nedaugeliui išrinktųjų (kurie tegali savo pozicija džiaugtis už vartų ir tvorų reikalingų juos ginti nuo likusios visuomenės)**
 
 This is the unseen process by which Europe’s crisis is turning our peoples inwards, against each other, amplifying pre-existing jingoism, xenophobia.The privatisation of anxiety, the fear of the ‘other’, the nationalisation of ambition, and the re-nationalisation of policy threaten a toxic disintegration of common interests from which Europe can only suffer.
 
