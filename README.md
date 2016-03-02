@@ -67,11 +67,17 @@ Diem25 http://diem25.org/manifesto-short-version/ vertimas į lietuvių kalbą
 
 **Privalo būti kitas kelias. Ir jis yra!**
 
-It is the one official ‘Europe’ resists with every sinew of its authoritarian mind-set:
+*It is the one official ‘Europe’ resists with every sinew of its authoritarian mind-set:*
 
-A surge of democracy!
+**Ir tai yra tas kelias, kuriam oficialioji "Europa" priešinasi visomis savo autoritarinio mentaliteto išgalėmis"
 
-Edmund Burke’s line applies to today’s Europe perfectly: “The only thing necessary for the triumph of evil is that good people do nothing.” Committed democrats must resolve to act across Europe. With a view to call forth just such a surge, we are gathering on 9th February in Berlin to found a movement,DiEM25.
+*A surge of democracy!*
+
+**Tai - demokratijos banga**
+
+*Edmund Burke’s line applies to today’s Europe perfectly: “The only thing necessary for the triumph of evil is that good people do nothing.” Committed democrats must resolve to act across Europe. With a view to call forth just such a surge, we are gathering on 9th February in Berlin to found a movement,DiEM25.*
+
+**Kažkada Edmundo Berko ištarta mintis tobulai tinka šios dienos Europai: "Tik tada kai geri žmonės nedaro nieko, blogis triumfuoja", Įsitikinę demokratai privalo pasiryžti veikti visos Europos mąstu. Norėdami sukelti tokią demokratijos bangą, mes Vasario 9 susirinkome Berlyne įkurti judėjimą, DiEM25.**
 
 *We come from every part of Europe and are united by different cultures, languages, accents, political party affiliations, ideologies, skin colours, gender identities, faiths and conceptions of the good society.*
 
@@ -93,50 +99,96 @@ Edmund Burke’s line applies to today’s Europe perfectly: “The only thing n
 
 **ES bus arba demokratizuota arba dezintegruosis**
 
-Our immediate priority is (A) full transparency in decision-making (e.g. live-streaming of European Council, Ecofin and Eurogroup meetings, full disclosure of trade negotiation documents, publication of ECB minutes etc.) and (B) the urgent redeployment of existing EU institutions in the pursuit of innovative policies that genuinely address the crises of debt, banking, inadequate investment, rising poverty and migration.
+*Our immediate priority is (A) full transparency in decision-making (e.g. live-streaming of European Council, Ecofin and Eurogroup meetings, full disclosure of trade negotiation documents, publication of ECB minutes etc.) and (B) the urgent redeployment of existing EU institutions in the pursuit of innovative policies that genuinely address the crises of debt, banking, inadequate investment, rising poverty and migration.*
 
-Our medium-term goal, once Europe’s various crises have been stabilised, is to convene a constitutional assembly where Europeans will deliberate on how to bring forth, by 2025, a full-fledged European democracy, featuring a sovereign Parliament that respects national self-determination and sharing power with national Parliaments, regional assemblies and municipal councils.
+**Pirmieji mūsų prioritetai yra šie: (A) visiškas sprendimų priėmimo skaidrdumas (pvz. gyvai vykdomas Europos Tarybos, Europos Finansų Ministrų susitikimų ir Eurogrupės atstovų susitikimų transliavimas, prekybinių sutarčių dokumentų viešas paskelbimas, ECB susitikimų protokolų viešas publikavimas), ir (B) neatidėliotinas egzistuojančių ES institucijų resurų perkėlimas vykdyti inovatyvią politiką, kuri iš esmės spręstš skolų, bankininkystės sistemos, nepakankamų investicijų, augančio skurdo lygmens ir migracijos problemas**
 
-We call on our fellow Europeans to join us forthwith to create DiEM25 and to fight together to democratise the European Union, to end the reduction of all political relations into relations of power masquerading as merely technical decisions; to subject the EU’s bureaucracy to the will of sovereign European peoples; to dismantle the habitual domination of corporate power over the will of citizens; and to re-politicise the rules that govern our single market and common currency.
+*Our medium-term goal, once Europe’s various crises have been stabilised, is to convene a constitutional assembly where Europeans will deliberate on how to bring forth, by 2025, a full-fledged European democracy, featuring a sovereign Parliament that respects national self-determination and sharing power with national Parliaments, regional assemblies and municipal councils.*
 
-We are inspired by a Europe of Reason, Liberty, Tolerance and Imagination made possible by comprehensive Transparency, real Solidarity and authentic Democracy. We aspire to:
+**Mūsų vidutinio laikotarpio tikslas, kai tik įvairios Europą krečiančios krizės bus stabilizuotos suburti konstitucinę asamblėją, kurioje Europiečiai svarstys, kaip, iki 2025 metų metų pasiekti veikiančią visą Europą apimančią demokratiją, su suvereniu parlamentu, kuris gerbia nacionalinį apsisprendimą ir dlainasi galiomis su nacionaliniais parlamentais, regioniais atstovavimo organais ir savivaldybėmis.**
 
-A Democratic Europe in which all political authority stems from Europe’s sovereign peoples
+*We call on our fellow Europeans to join us forthwith to create DiEM25 and to fight together to democratise the European Union, to end the reduction of all political relations into relations of power masquerading as merely technical decisions; to subject the EU’s bureaucracy to the will of sovereign European peoples; to dismantle the habitual domination of corporate power over the will of citizens; and to re-politicise the rules that govern our single market and common currency.*
 
-A Transparent Europe where all decision-making takes place under the citizens’ scrutiny
+**Mes kviečiame Europiečius prisijungti prie mūsų, kad sukurtume DiEM25 ir kovotume kartu, siekdami demokratizuoti Europos Sąjunga, kad sustabdytume politinių santykių redukciją į galios santykius, kurie vaidina esą, tėra tik techniniai sprendimail kad palaužtume ES biurokratiją paklusti suverenių Europos žmonių valiai; kad išmontuotume nuolatinius korporatyvinės galios santykius, kurie šiuo metu turi viršenybę virš piliečių valios; ir repolitizuotume taisykles, kurios valdo mūsų bendrą rinką ir bendrą valiutą**
 
-A United Europe whose citizens have as much in common across countries as within them
+*We are inspired by a Europe of Reason, Liberty, Tolerance and Imagination made possible by comprehensive Transparency, real Solidarity and authentic Democracy. We aspire to:*
 
-A Realistic Europe that sets itself the task of radical, yet achievable, democratic reforms
+**Mes esame įkvįpti Europos, paremtos Protu, Laisve, Tolerancija ir vaizduote, kuri yra įmanoma tik dėka visapusiško Skaidrumo, tikro Solidarumo ir autentiškos Demokratijos. Mes siekiame:**
 
-A Decentralised Europe that uses central power to maximise democracy locally
+*A Democratic Europe in which all political authority stems from Europe’s sovereign peoples*
 
-A Pluralist Europe of regions, ethnicities, faiths, nations, languages and cultures
+**Demokratinės Europos, kurioje visa politinė valdžia eina iš suverenių Europos žmonių**
 
-An Egalitarian Europe that celebrates difference and ends all forms of discrimination
+*A Transparent Europe where all decision-making takes place under the citizens’ scrutiny*
 
-A Cultured Europe that harnesses its peoples’ cultural diversity
+**Skaidrios Europos, kurioje visi priimami sprendimai atliekami piliečiams kruoščiai gvildenant aptariamus klausimus**
 
-A Social Europe that recognises freedom from exploitation as a prerequisite for true liberty
+*A United Europe whose citizens have as much in common across countries as within them*
 
-A Productive Europe that directs investment into a shared, green prosperity
+**Vieningos Europos, kurios piliečiai turi tiek pat bendro tarpusavyje su kaimynais už sienos, kaip ir su savo tautiečiais**
 
-A Sustainable Europe that lives within the planet’s means
+*A Realistic Europe that sets itself the task of radical, yet achievable, democratic reforms*
 
-An Ecological Europe engaged in genuine world-wide green transition
+**Realistinės Europos, kuri kelia sau radikalių, bet pasiekiamų, demokratinių reformų tikslus**
 
-A Creative Europe that releases the innovative powers of its citizens’ imagination
+*A Decentralised Europe that uses central power to maximise democracy locally*
 
-A Technological Europe pressing new technologies in the service of solidarity
+**Decentralizuotos Europos, kuri naudoja centralizuotą galią, kad maksimizuotų vietos demokratiją**
 
-A Historically-minded Europe that seeks a bright future without hiding from its past
+*A Pluralist Europe of regions, ethnicities, faiths, nations, languages and cultures*
 
-An Internationalist Europe that treats non-Europeans as ends-in-themselves
+**Pliuralistinės Europos, kuriaiai svarbūs visi regionai, etninės grupės, tikėjimai, tautos, kalbos ir kultūros**
 
-A Peaceful Europe de-escalating tensions in its neighbourhood and beyond
+*An Egalitarian Europe that celebrates difference and ends all forms of discrimination*
 
-An Open Europe that is alive to ideas, people and inspiration from all over the world, recognising fences and borders as signs of weakness and sources of insecurity
+**Egalitarinės Europos, kuri švenčia savo skirtumus ir nutraukia visas diskriminacijos fomas**
 
-A Liberated Europe where privilege, prejudice, deprivation and the threat of violence wither, allowing Europeans to be born into fewer stereotypical roles, to enjoy even chances to develop their potential, and to be free to choose more of their partners in life, work and society.
+*A Cultured Europe that harnesses its peoples’ cultural diversity*
 
-Carpe DiEM25
+**KUltūringos Europos, kuri panaudoja savo žmonių kultūrinę įvairovę**
+
+*A Social Europe that recognises freedom from exploitation as a prerequisite for true liberty*
+
+**Socialios Europos, kuri pripažįsta laisvę nuo išnaudojimo išankstine sąlyga tikrai laisvei**
+
+*A Productive Europe that directs investment into a shared, green prosperity*
+
+**Produktyvios Europos, kuri nukreipia investicijas į bendrą, žaliąjį klestėjimą** 
+
+*A Sustainable Europe that lives within the planet’s means*
+
+**Tvarios Europos, kuri gyvena pagal planetos išteklius**
+
+*An Ecological Europe engaged in genuine world-wide green transition*
+
+**Ekologiškos Europos, įsitraukusios į tikrą pasaulinį perėjimą prie žaliosios ekonomikos**
+
+*A Creative Europe that releases the innovative powers of its citizens’ imagination*
+
+**Kurybiškos Europos, kuri išlaisvina inovatyvias savo piliečių vaizduotės galios**
+
+*A Technological Europe pressing new technologies in the service of solidarity*
+
+**Technologinės Europos, kuri įdarbina naująsias technologijas solidarumo vardan**
+
+*A Historically-minded Europe that seeks a bright future without hiding from its past*
+
+**Istoriškai mąstančios Europos, kuri siekia šviesio ateisties nesislėpdama nuo savo praeities**
+
+*An Internationalist Europe that treats non-Europeans as ends-in-themselves*
+
+**Internacionalistinės Europos, kuri traktuoja ne-Europiečius, kaip** ends in themselves 
+
+*A Peaceful Europe de-escalating tensions in its neighbourhood and beyond*
+
+**Taikios Europos, deeskaluojančios įtampas kaimynystėje ir už jos ribų**
+
+*An Open Europe that is alive to ideas, people and inspiration from all over the world, recognising fences and borders as signs of weakness and sources of insecurity*
+
+**Atviros Europos, kuri yra gyva idėjoms, žmonėms ir įkvėpimui iš viso pasaulios, pripažįstanti tvoras ir sienas kaip silpnumo ženklą ir nesaugumo šaltinį**
+
+*A Liberated Europe where privilege, prejudice, deprivation and the threat of violence wither, allowing Europeans to be born into fewer stereotypical roles, to enjoy even chances to develop their potential, and to be free to choose more of their partners in life, work and society.*
+
+**Išlaisvintos Europos, kur privilegija, išankstinis nusistatymas, depivacija ir smurto grėsmė išblės, leisdami Europiečiams gimti ir būti išauklėti į mažiau stereotipinių rolių, ir turėti galimybę vystyti savo potencialą, ir būti laisvesni pasirinkti tiek iš savo gyvenimo partnerių, darbo ar visuomenės.**
+
+Carpe DiEM25!
