@@ -177,7 +177,7 @@ Diem25 http://diem25.org/manifesto-short-version/ vertimas į lietuvių kalbą
 
 *An Internationalist Europe that treats non-Europeans as ends-in-themselves*
 
-**Internacionalistinės Europos, kuri traktuoja ne-Europiečius, kaip** ends in themselves 
+**Internacionalistinės Europos, kuri traktuoja ne-Europiečius, kaip savaiminį tikslą** 
 
 *A Peaceful Europe de-escalating tensions in its neighbourhood and beyond*
 
